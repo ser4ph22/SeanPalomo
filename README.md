@@ -1,0 +1,2 @@
+# SeanPalomo
+Checkout my projects!
